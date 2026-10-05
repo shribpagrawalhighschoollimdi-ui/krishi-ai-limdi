@@ -1,1 +1,0 @@
-# krishi-ai-limdi
